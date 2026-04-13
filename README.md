@@ -54,4 +54,4 @@ B.Sc Statistics — Vimala College, Thrissur
 B.Sc Data Science & Programming — IIT Madras
 
 📧 amsulakshmijagadeesan@gmail.com
-🔗 LinkedIn
+🔗https://www.linkedin.com/in/amsulakshmi-jagadeesan
