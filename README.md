@@ -52,4 +52,6 @@ Duration: April 2025 – August 2025
 Amsulakshmi K J
 B.Sc Statistics — Vimala College, Thrissur
 B.Sc Data Science & Programming — IIT Madras
+
 📧 amsulakshmijagadeesan@gmail.com
+🔗 LinkedIn
